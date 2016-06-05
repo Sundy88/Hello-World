@@ -1,2 +1,4 @@
 # Hello-World
-It's my first repository
+hello everyone .
+im Sundy.
+i'd like to be your friends..
